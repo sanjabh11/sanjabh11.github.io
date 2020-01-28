@@ -1,7 +1,7 @@
 # Magic of attention
 Why paying attention to your inner self or your sense of presence is magical? How is it different from paying attention to anything outside like a moving car, glowing light, etc?
 
-! [Image description] (images/Attention 2.jfif)
+! [Image description] (images/Ignite Flyer.jpg)
 
 Think of completing the circuit of a small bulb. Usually, in switched off condition one of the electrodes of the bulb is connected to a live source of electricity all the time. What switching the switch 'ON' does is that it connects the other electrode of the bulb to earth, therefore creating an exit path for the electrons and in the process, the circuits are completed and it flows through the filament of bulb and that creates illumination.
 Now the same way your inner consciousness is connected to the universal consciousness all the time and when the attention is focussed outwards you can see all the objects of attention, therefore, creating your self world. The mind and memory play an important role and you are able to perceive the objects and things in the conformance of worldly life.
