@@ -8,6 +8,6 @@ Now the same way your inner consciousness is connected to the universal consciou
 The moment you realize that the ability to be in the world and therefore perceiving the object is only because of the divine light within and the outside world is not real, the first thing you do is to switch off your mind and look for the reality, which is within and available here and now. Since its available here and now, the reality is ever fresh and hence you don't need any help from memory as well!
 Those moments where your attention is focussed on real, outside world suddenly become blurry because your inner circuit is complete and glowing with the reality. 
 
-! [Image description] (https://github.com/sanjabh11/sanjabh11.github.io/blob/master/images/Attention%201.jfif)
+! [Image description] (images/Attention1.jfif)
 
 If this is practiced for a long time,  your tendency to see within is cemented and your attention is ever on the divine light within.
